@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **lacaveenrique@gmail.com**
 
-- ⚡ Fun fact **Me apasiona la música, formo parte de varias agrupaciones y me gusta componer**
+- ⚡ Fun fact **Me apasiona la música, soy compositor y formo parte de varias agrupaciones**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
